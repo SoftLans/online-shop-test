@@ -1,0 +1,1 @@
+bu yerga takroran ishlatiladigan elementlar bo'ladi

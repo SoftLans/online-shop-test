@@ -1,0 +1,1 @@
+bu yerga page lar boladi

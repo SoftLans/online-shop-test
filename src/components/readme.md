@@ -1,0 +1,1 @@
+Bu yerga componentlar bo'ladi
